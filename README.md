@@ -1,1 +1,1 @@
-htps://Tanish2207/github.io/
+https://Tanish2207/github.io/
